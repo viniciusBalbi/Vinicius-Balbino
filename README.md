@@ -10,4 +10,4 @@ i hope you find all the information you need, if not, don't hasitate to send me 
 
 #                                         Whou you can find me:
 
-[www.linkedin.com](www.linkedin.com/in/vinicius-balbino-b79011236)
+[ Linkedin](https://www.linkedin.com/in/vinicius-balbino-b79011236/)
