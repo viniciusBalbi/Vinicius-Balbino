@@ -7,3 +7,7 @@
 thank you for taking the time to view my github profile
 
 i hope you find all the information you need, if not, don't hasitate to send me a message on the channels below
+
+#                                         Whou you can find me:
+
+[www.linkedin.com](www.linkedin.com/in/vinicius-balbino-b79011236)
